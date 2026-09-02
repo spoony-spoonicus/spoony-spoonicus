@@ -1,5 +1,10 @@
 <div align="center">
 
+![Profile visitors](https://komarev.com/ghpvc/?username=spoony-spoonicus&label=Angels&color=green&style=flat-square)
+
+</div>
+<div align="center">
+
 ![Alt text](https://files.catbox.moe/0x9hl8.gif)
 
 </div>
