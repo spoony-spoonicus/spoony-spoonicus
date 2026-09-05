@@ -14,6 +14,6 @@
   
 <div align="center">
 
-[rentry](https://rentry.co/alwayssunnyphilly) [ata](https://malarban.atabook.org/) [straw](https://spoonyspoon1cus.straw.page) [pronouns page](https://en.pronouns.page/@BRODY-BAYWATCH)
+[rentry](https://rentry.co/alwayssunnyphilly) [ata](https://alwayssunnyinphilly.atabook.org/) [straw](https://spoonyspoon1cus.straw.page) [pronouns page](https://en.pronouns.page/@BRODY-BAYWATCH)
 
 </div> 
