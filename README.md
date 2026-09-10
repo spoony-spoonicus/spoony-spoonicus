@@ -5,7 +5,7 @@
 </div>
 <div align="center">
 
-![Alt text](https://files.catbox.moe/0x9hl8.gif)
+![Alt text](https://files.catbox.moe/r42ezg.gif)
 
 </div>
 <p align="center">
